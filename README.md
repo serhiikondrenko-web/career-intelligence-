@@ -1,1 +1,1 @@
-# career-intelligence-
+# career-intelligenc
